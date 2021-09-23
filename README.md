@@ -1,1 +1,2 @@
-# ting10160083.github.io
+# Ting's Website
+![Friend](line_569268199922109)
