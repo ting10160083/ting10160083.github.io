@@ -1,2 +1,2 @@
 # Ting's Website
-![Friend](line_569268199922109)
+![Friend](line_569268199922109.png)
